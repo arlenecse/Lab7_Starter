@@ -1,4 +1,5 @@
-Partner Names: 
+Partner Names:
+Vy Dang 
 Arlene Garcia
 
 Check Your Understanding Questions
